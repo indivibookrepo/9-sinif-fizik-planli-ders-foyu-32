@@ -1,0 +1,1 @@
+# 9-sinif-fizik-planli-ders-foyu-32
